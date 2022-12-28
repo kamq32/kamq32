@@ -1,0 +1,1 @@
+let kill ur self
